@@ -2,7 +2,7 @@
 
 BOAS VINDAS AO MEU PERFIL 💙💙
 
-Yasmin da Costa Carvalho
+Yasmin Da Costa Carvalho
 
 Estou estudando na Alura
 
